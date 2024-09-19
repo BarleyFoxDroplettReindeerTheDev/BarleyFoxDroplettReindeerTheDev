@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding, video games, and drawing!
 - 🌱 I’m currently learning robotics stuff.
 - 💞️ I’m looking to collaborate on idk. I guess ask me.
-- 📫 How to reach me: DM me on Discord @Droplett_The_Reindeer
+- 📫 How to reach me: DM me on Discord: Droplett_The_Reindeer
 - 😄 Pronouns: They/it
 - ⚡ Fun fact: You are reading the Readme of someone who doesn't have a fun fact right now ^w^"
 
